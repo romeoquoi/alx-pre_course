@@ -1,1 +1,1 @@
-Doing Hard things 
+Doing Hard things is good 
